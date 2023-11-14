@@ -181,7 +181,7 @@ By establishing the Asena, you are deemed to have accepted these responsibilitie
   
 | [!) |
 |----|
-| [꧁𓊈𒆜ＡＬＩＥＮ ＡＬＦＡ𒆜𓊉꧂](https://github.com/AI-VIKI) |
+| [꧁𓊈𒆜C Y B E R O R E N𒆜𓊉꧂](https://github.com/jxxzy) |
 |  𒆜Bug Fixes, Modules, updates𒆜 |
   
   </div>
